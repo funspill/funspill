@@ -19,10 +19,10 @@ Here are some ideas to get you started:
   <img src="https://github.com/funspill/funspill/assets/119467162/be429f11-6c00-4ad2-b10e-c7c3a422c38a"/>
   &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
   <img src="https://github.com/funspill/funspill/assets/119467162/0034f4fc-a22d-4d3d-9d13-07c52e996177"/>
-  <img src="https://github.com/funspill/funspill/assets/119467162/4b67ab06-db53-445a-820e-79d9fbecf306"/>
+  <img src="https://github.com/funspill/funspill/assets/119467162/bccdc8cc-60d5-410a-be77-3efdb886739a"/>
   &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
   <img src="https://github.com/funspill/funspill/assets/119467162/7e876297-72e3-4df8-9bcc-36c37d4a0bf2"/>
-  <img src="https://github.com/funspill/funspill/assets/119467162/cadd1256-7335-4c85-b409-4dbfe6d90c5c"/>
+  <img src="https://github.com/funspill/funspill/assets/119467162/8d336e5c-71d5-452e-a3cb-1c967f3ad17c"/>
   &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
   <img src="https://github.com/funspill/funspill/assets/119467162/544984c8-3bb0-4d7c-9d88-7e09d7911701"/>
   <img src="https://github.com/funspill/funspill/assets/119467162/5eb74d95-93d2-4419-90a1-e044b9efe811"/>
